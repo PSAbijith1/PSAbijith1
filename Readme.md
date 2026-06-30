@@ -1,1 +1,1 @@
-![fire](fire.gif)
+![fire](fire.gif)                "To be everywhere is to be nowhere." – Seneca
