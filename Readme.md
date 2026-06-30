@@ -1,1 +1,1 @@
-"To be everywhere is to be nowhere." – Seneca
+![fire](fire.gif)
